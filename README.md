@@ -1,4 +1,4 @@
-![](https://pbs.twimg.com/profile_banners/1441982625862742024/1632758391/600x200)
+![](https://pbs.twimg.com/profile_banners/1441982625862742024/1632758490/600x200)
 
 ### Mikhail Frolov
 
